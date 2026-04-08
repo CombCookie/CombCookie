@@ -1,6 +1,7 @@
-<img width="498" height="498" alt="image" src="https://github.com/user-attachments/assets/26b9fff3-bfe6-4129-9e25-0da69006c857" /><img width="498" height="498" alt="image" src="https://github.com/user-attachments/assets/cda6d0a5-7fae-4531-87ab-08ab192aed7b" />## 𝗪𝗲𝗹𝗰𝗼𝗺𝗲 𝘁𝗼 𝗖𝗼𝗺𝗯'𝘀 𝗚𝗶𝘁𝗵𝘂𝗯 𝗣𝗮𝗴𝗲 .
-![blueberry-blueberry-inanimate-insanity](https://github.com/user-attachments/assets/1a057b1a-7136-404c-ac63-e5efc8e337cc)
+<img width="1200" height="400" alt="image" src="https://github.com/user-attachments/assets/c73252cb-ff4c-4e79-a0a8-b7ff2209ff7b" />
 
+## 𝗪𝗲𝗹𝗰𝗼𝗺𝗲 𝘁𝗼 𝗖𝗼𝗺𝗯'𝘀 𝗚𝗶𝘁𝗵𝘂𝗯 𝗣𝗮𝗴𝗲 .
+𝘽𝙡𝙪𝙚𝙗𝙚𝙧𝙧𝙮 𝙄𝙄 𝙖𝙣𝙙 𝙈𝙤𝙤𝙣𝙡𝙞𝙜𝙝𝙩 𝘾𝙤𝙤𝙠𝙞𝙚 𝙛𝙖𝙣.
 
 
 ⲡⲣυⲃⲉⲧ, υ ⲇⲟⳝⲣⲟ ⲡⲟⲿⲁⲗⲟⲃⲁⲧь ⲃ ⲙⲟύ ⲡⲣⲟφυⲗь.
@@ -14,7 +15,7 @@
 
 
 
-
+![blueberry-blueberry-inanimate-insanity](https://github.com/user-attachments/assets/1a057b1a-7136-404c-ac63-e5efc8e337cc)
 
 
 
