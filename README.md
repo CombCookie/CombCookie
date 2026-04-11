@@ -1,4 +1,5 @@
-<img width="757" height="219" alt="image" src="https://github.com/user-attachments/assets/b73bb959-1ba4-4e98-b934-6557e7ab3b4a" />
+<img width="1510" height="716" alt="image" src="https://github.com/user-attachments/assets/9dc4a543-dffd-4b2a-a4bf-bae2a8c56c89" />
+
 
 
 ## 𝗪𝗲𝗹𝗰𝗼𝗺𝗲 𝘁𝗼 𝗖𝗼𝗺𝗯'𝘀 𝗚𝗶𝘁𝗵𝘂𝗯 𝗣𝗮𝗴𝗲 .
